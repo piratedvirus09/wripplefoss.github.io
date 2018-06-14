@@ -1,3 +1,0 @@
-## WrippleFOSS main website
-
-
